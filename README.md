@@ -1,0 +1,2 @@
+# Croquis_Somos_Industrial
+Croquis_Somos_Industrial
